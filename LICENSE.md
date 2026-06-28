@@ -1,4 +1,4 @@
-# 
+# Oficial MEV arbitrage bot extensões para Mac OS | Exclusivo MEV arbitrage bot extensões para PC Windows. Com ordens de mercado e painéis personalizados — otimizado para máximo desempeño en cada plataforma.
 
 
 
